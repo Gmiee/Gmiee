@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Gmiee
+- 👀 I’m interested in web designing
+- 🌱 I’m currently learning designing languages
